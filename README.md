@@ -3,7 +3,7 @@
 **Below is a little about me and my future goals**
 
 - 🔭 I’m currently working on completing my CCNA so I can further my Network Engineering knowledge and use that within my work as a Network Associate.
-- 👯 I’m looking to collaborate with others on their CCNA and their Networking journey.
+- 👯 I’m looking to collaborate with others on their IT journey.
 - 💬 Ask me about MMA fighting, I heavily enjoy the sport and train in it as well.
 - 📫 How to reach me: https://www.linkedin.com/in/nedas-gendrolis-9507b1184/
 - 😄 Pronouns: He/Him
