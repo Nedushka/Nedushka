@@ -6,5 +6,4 @@
 - 👯 I’m looking to collaborate with others on their IT journey.
 - 💬 Ask me about MMA fighting, I heavily enjoy the sport and train in it as well.
 - 📫 How to reach me: https://www.linkedin.com/in/nedas-gendrolis-9507b1184/
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love nature, to the point where I want to live in a mountain surrounded by forests and live off the land.
